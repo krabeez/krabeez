@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @krabeez
+- 👀 I’m interested into bringing tech for all.
+- 🌱 I’m currently learning the basics.
+- 💞️ I’m looking to collaborate on everything you want me into !
+- 📫 How to reach me : look around
